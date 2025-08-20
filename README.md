@@ -33,7 +33,10 @@ Sleeping With Sirens is another emo/rock band from Orlando, Florida that I like.
 It was a little hard choosing a Slipknot song for this playlist but I found this one most interesting to talk about. The story behind this song is that Corey Taylor, the singer, read a story online that he believed was real. It told the story of a girl named Adrianne Purity Knight who was kidnapped and buried alive. The author of the story later claimed it was fictional and tried to file a lawsuit against Slipknot. This led to the song being removed off their debut album but was later added on the 10-year anniversary edition of it. I would say it isn't a really popular Slipknot song but is totally worth the listen, along with their other more "niche" songs.
 
 ### "You've Seen the Butcher" - Deftones
-I listen to many Deftones songs and this so far is my favourite! "You've Seen the Butcher" comes off their album *Diamond Eyes* released in 2010.
+I listen to many Deftones songs and this so far is my favourite! "You've Seen the Butcher" comes off their 6th "main" album *Diamond Eyes* released in 2010. I honestly don't have a lot to say about this song but I just really wanted to share it. Some other Deftones songs I recommend are "Around the Fur", "Mascara", and "Kimdracula".
+
+### "'Merican" - Descendents
+
 
 ## Moodboard
 
