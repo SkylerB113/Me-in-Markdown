@@ -6,6 +6,8 @@ Hello, my name is Skyler! I am 17 years old and I am a senior here at Chatsworth
 ## My-Music
 I absolutely love music; it has practically built my personality my whole life. I have seen over 50 people in concert over the pas 4/5 years and I don't plan on stopping. Here are some songs that I enjoy!
 
+[Spotify link](https://open.spotify.com/playlist/5na1ArQAWgaX0lRd3vXgeu?si=o1-lqLERTTyi4Iru5ETIRw)
+
 ## Moodboard
 
 
