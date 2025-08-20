@@ -36,7 +36,7 @@ It was a little hard choosing a Slipknot song for this playlist but I found this
 Descendents is a punk band that my dad got me into with their song "Sour Grapes." They started making music in the 80s and their latest album was released in 2022. "'Merican" comes off the album *Cool to Be You* and is a high energy song about the problems of American society and how the "American dream" is not much of a positive one if you look into it. I really like this song because I do believe it is a good commentary on some of the issues with American independence. I like the simple art style of the character Milo on each of the album covers. I have a patch of him on my backpack :). I certainly would like people to check out Descendents!
 
 ### "Hills Like White Elephants" - Isles & Glaciers
-I found this group through
+I found this supergroup because of Pierce The Veil since Vic Fuentes is part of it. Some other big names in the band are Jonny Craig (Dance Gavin Dance), Craig Owens, and Matt Goddard (both from Chiodos).
 
 
 ## Moodboard
