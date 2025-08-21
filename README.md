@@ -39,7 +39,7 @@ Descendents is a punk band that my dad got me into with their song "Sour Grapes.
 I found this supergroup because of Pierce The Veil since Vic Fuentes is part of it. Some other big names in the band are Jonny Craig (Dance Gavin Dance), Craig Owens, and Matt Goddard (both from Chiodos). I don't know a lot of groups like this but I do like them a lot. "Hills Like White Elephants" is one of their most popular songs along with "Clush". I don't have too much to say about it but the little verse that Vic sings in the middle of the song is of course my favourite!
 
 ### "Chelsea Smile" - Bring Me The Horizon
-Bring Me The Horizon got their name from a quote from Pirates of the Caribbean! 
+Finally as a bonus song I chose "Chelsea Smile". Bring Me The Horizon is a British band who actually got their name from a quote from Pirates of the Caribbean! A chelsea smile, or a Glasgow smile, is a scar that is created from someone getting their cheeks carved to resemble a wide grin. The actor Tommy Flanagan is a well known face for this. I thought those were some cool facts. "Chelsea Smile" is one of my favourites because it's so fast paced and loud. I absolutely love it!
 
 
 ## Moodboard
